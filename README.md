@@ -1,1 +1,1 @@
-# Samruddhi
+# Trinity College 
